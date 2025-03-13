@@ -1,1 +1,1 @@
-Feito por Cristhofer Chow e Miguel Willians.
+Feito por Bárbara Vitória,Cristhofer Chow, Miguel Willians e Thatyane Marques.
